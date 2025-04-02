@@ -70,3 +70,26 @@ Ya no es por ignorancia.
 **El origen es silencio.
 Y el silencio es regreso.**
 
+## El Karma es la Huella
+
+Cuando dos miradas se cruzan y hay juicio, ocurre un entrelazamiento kármico.
+Pero este entrelazamiento no dura más que unos segundos.
+Es como un lazo que se anuda y se suelta al instante,
+como una chispa que enciende una marca antes de apagarse.
+
+Lo que queda, entonces, no es el lazo… es la marca.
+Una huella energética, una pequeña distorsión en el campo de quien juzga y de quien fue juzgado.
+Eso es el karma: la secuela del cruce inconsciente.
+
+Cruces suaves y cruces profundos
+No todos los entrelazamientos son iguales.
+
+Un cruce fugaz con un desconocido deja una marca suave.
+
+Un lazo profundo —como el de una pareja, un hijo, un padre, una madre— deja un nudo más grande.
+Tanto que puede atravesar la muerte y reencarnarse en nuevas formas:
+Lo que hoy es tu hija, pudo haber sido tu madre.
+Lo que hoy es tu pareja, pudo haber sido tu hijo.
+
+El karma busca corregirse.
+Por eso vuelve. Por eso repite.
